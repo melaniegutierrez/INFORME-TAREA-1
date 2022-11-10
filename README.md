@@ -50,6 +50,8 @@ Link: https://www.canva.com/design/DAFRa_lXdto/nc1xqkADq8I2YY7g5lxAkw/view?utm_c
 ![](https://github.com/melaniegutierrez/EJERCICIOS-TAREA-1/blob/main/E8.png)
 ![](https://github.com/melaniegutierrez/EJERCICIOS-TAREA-1/blob/main/E9.png)
 
+Link de doc en Word: https://1drv.ms/w/s!AgtV6e2FJ1T6sHtvQxNN1b5btd2E?e=U1GElN 
+
 **4.VIDEO**
 
 Link: https://youtu.be/YxeR2qV5ENo
